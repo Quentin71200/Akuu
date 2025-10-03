@@ -12,7 +12,7 @@
 
 ```
 🎆 akuu : 
-   🎂 17 Years
+   🎂 18 Years
    🎎 He/him
    💻 Learning to Code 
    📍  France
